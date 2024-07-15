@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+سلام، من باربدم و اینجا یه وبلاگ معممولی هستش که از روی کنجکاوی ساخته شده
 
-Maybe say a some things about yourself.
+البته تموم صفحه هایی اجتماعی من اینجا لینک شدن
 
-Or maybe what you plan to blog about.
+بیشتر فعالیت من تو تلگرام هستش
+
+عشق 3>
